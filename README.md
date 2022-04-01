@@ -1,1 +1,0 @@
-# Aarushi_Gupta
